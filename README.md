@@ -1,3 +1,0 @@
-"# ljGift" 
-"# ljGift" 
-"# ljGift" 
